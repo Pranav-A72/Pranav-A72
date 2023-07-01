@@ -7,5 +7,5 @@ I HAVE NO ARTISTIC ABILITY WHATSOEVER
 https://linktr.ee/pranavanuraag
 
 For Buissness Inquiries Message me on Discord:
-Bob72 #8674
+bob72 
 
